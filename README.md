@@ -1,16 +1,22 @@
-## Hi there 👋
+### Welcome thi's my profile 👑
+My name is enzo 
 
-<!--
-**nktx7/nktx7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- I'am studing ont the plataform [Alura]( https://cursos.alura.com.br ).
+- Estou me desenvolvendo na linguagem JavaScript
+- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvlvidos !!
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+### you can enter in contact 📫
+
+
+00001095407375sp@al.educacao.sp.gov.br
+
+silva.zx4 this my insta, follow me bro 🇧🇷
+
+
+
+
+[  ](https://i2.pngimg.me/thumb/f/720/comdlpng6966009.jpg )
